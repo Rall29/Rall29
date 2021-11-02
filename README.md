@@ -1,0 +1,2 @@
+- Hi, I speak Japanese!
+- Gmail : saw005ww@gmail.com
